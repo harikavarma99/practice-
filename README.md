@@ -1,1 +1,1 @@
-learning sanju sanju
+learning buddi
